@@ -1,5 +1,5 @@
 # art!
-doodles, finishes pieces, sketches, etc
+doodles, finished pieces, sketches, etc
 
 nothing will be suggestive or nsfw
 
